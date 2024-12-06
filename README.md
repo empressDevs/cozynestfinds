@@ -1,0 +1,2 @@
+# cozynestfinds
+# affiliate website
